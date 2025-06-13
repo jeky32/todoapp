@@ -107,7 +107,9 @@ https://github.com/user-attachments/assets/bff5ddb2-004b-48b4-a776-51f076538f56
 
 
 🧑‍💻 Kontributor
-Nama Anda
+Nama : Zacky Noor Faizi
+Kelas : XI RPL 2
+Absen : 34
 
 
 
